@@ -40,4 +40,25 @@ Joseph Smith, Jr., January 2, 1845, History of the Church, v. 5, pp. 21-218
 
 Brigham Young, Journal of Discourses, 10:110
 
+- - -
+
+> “You may inquire of the intelligent of the world whether they can tell why the aborigines of this country are dark, loathsome, ignorant, and sunken into the depths of degradation…When the Lord has a people, he makes covenants with them and gives unto them promises: then, if they transgress his law, change his ordinances, and break the covenants he has made with them, he will put a mark upon them, as in the case of the Lamanites and other portions of the house of Israel; but by-and-by they will become a white and delightsome people.”
+
+Brigham Young, Journal of Discourses, Volume 7, page 336
+
+- - -
+
+> I think the Lord segregated the Negro and who is man to change that segregation? It reminds me of the scripture on marriage, 'what God hath joined together, let not man put asunder.' Only here we have the reverse of the thing ‑ what God hath separated, let not man bring together again.
+
+Mark E. Petersen (LDS Apostle), Race Problems ‑ As They Affect The Church, Convention of Teachers of Religion on the College Level, Brigham Young University, Provo, Utah, August 27, 1954
+
+- - -
+
+Statement of the First Presidency August 17, 1951
+
+> "The attitude of the Church with reference to negroes remains as it has always stood. It is not a matter of the declaration of a policy but of direct commandment from the Lord, on which is founded the doctrine of the Church from the days of its organization, to the effect that negroes may become members of the Church but that they are not entitled to the priesthood at the present time. [ quotations from Brigham Young and Wilford Woodruff, and discussion of the premortal existence...]..." 
+
+Cited in The Church And The Negroid People, by William E. Berrett, Vice President of Brigham Young University, an appendix to John J. Stewart, Mormonism and the Negro, Bookcraft, 1960, Orem Utah
+
+
 ## Acknowledgements

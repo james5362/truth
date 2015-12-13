@@ -22,16 +22,19 @@ Here are some examples:
 
 President Joseph Fielding Smith The Way to Perfection, p. 101
 
+- - -
 
 > "...those who were less valiant in pre-existence and who there­by had certain spiritual restrictions imposed upon them during mortality are known to us as the Negroes."
 
 Apostle Bruce McConkie Mormon Doctrine (1958), p. 476
 
+- - -
 
 > “Had I anything to do with the negro, I would confine them by strict law to their own species...”
 
 Joseph Smith, Jr., January 2, 1845, History of the Church, v. 5, pp. 21-218
 
+- - -
 
 > Shall I tell you the law of God in regard to the African race? If the white man who belongs to the chosen seed mixes his blood with the seed of Cain, the penalty, under the law of God, is death on the spot. This will always be so.
 
